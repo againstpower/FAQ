@@ -1,3 +1,5 @@
+## *For the rebels and the dreamers, the prisoners and the outcasts. For those that love too hard, think too hard, and don’t know how to give up.*
+
 Against Power is a love letter to the contemporary anarchist movement in the form of a Magic: the Gathering set.
 Here's the card image gallery so far:
 https://againstpower.github.io/sets/APW 
